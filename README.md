@@ -1,1 +1,1 @@
-# TRIPZ
+# Trippz
